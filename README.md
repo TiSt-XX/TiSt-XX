@@ -1,9 +1,8 @@
 ## 💫 About TiSt
 
-* 👷NameUltra
 * 💾Game
   > Minecraft
-  >
+  
   > Efootball
   
 
