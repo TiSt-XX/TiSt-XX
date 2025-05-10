@@ -1,5 +1,5 @@
 # 💫 About TiSt
-it My Name is Ultra yeah
+My Name Ultra yeah
 Forever Game : Minecarft
 
 ### Discord Profile
